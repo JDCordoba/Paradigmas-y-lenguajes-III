@@ -6,7 +6,7 @@
 
 
 ## Integrantes:️
-_Vreys Michael_ 
+_Ibañez Vreys, Michael_ - ELSI 520
 
-_Cordoba Juan_ 
+_Cordoba, Juan Daniel_ - ELSI 517
 
